@@ -55,7 +55,7 @@ I am currently pursuing an MBA in Human Resource Management and Finance at **Lov
 
 ## 🎓 Education
 
-**🎓 MBA (Finance & HRM)** – Lovely Professional University *(2024–Present)*  
+**🎓 MBA (HRM & Finance)** – Lovely Professional University *(2024–Present)*  
 **📘 M.Com** – Gangadhar Meher University *(75.5%) – 2022–2024*  
 **📙 B.Com (Hons)** – Jamshedpur Women’s University *(78.38%) – 2019–2022*  
 **🏫 Tarapore School, Jamshedpur**  
