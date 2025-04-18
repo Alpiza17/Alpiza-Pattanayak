@@ -1,4 +1,4 @@
-# 🎓 Alpiza Pattanayak — MBA | Finance & HRM
+# 🎓 Alpiza Pattanayak — MBA | HRM & Finance
 
 📍 *Phagwara, Punjab*  
 📧 [pattanayakalpiza20@gmail.com](mailto:pattanayakalpiza20@gmail.com)  
