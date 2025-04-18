@@ -8,7 +8,7 @@
 
 ## 🌟 About Me
 
-I am currently pursuing an MBA in Finance and Human Resource Management at **Lovely Professional University**. With hands-on experience in corporate finance, HR tech, recruitment planning, and learning & development, I combine analytical skills with people-centric strategies to drive organizational success.
+I am currently pursuing an MBA in Human Resource Management and Finance at **Lovely Professional University**. With hands-on experience in corporate finance, HR tech, recruitment planning, and learning & development, I combine analytical skills with people-centric strategies to drive organizational success.
 
 ---
 
